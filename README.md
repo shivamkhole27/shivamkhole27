@@ -14,8 +14,6 @@
 
 - 📫 How to reach me **kholeshivam82@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eO7ZkBOJbLgaGCC2KPeZJ3nftVZRXJHR/view?usp=sharing](https://drive.google.com/file/d/1eO7ZkBOJbLgaGCC2KPeZJ3nftVZRXJHR/view?usp=sharing)
-
 - ⚡ Fun fact **I like to innovate and frequently learn new technologies as well**
 
 <h3 align="left">Connect with me:</h3>
